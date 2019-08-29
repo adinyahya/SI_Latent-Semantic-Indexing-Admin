@@ -1,0 +1,2 @@
+# SI_Latent-Semantic-Indexing
+PROJECT SKRIPSI BELUM LENGKAP
